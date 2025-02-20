@@ -1,1 +1,1 @@
-# This isn't made by me! All cedits to /schizophrenic144
+# This isn't made by me! All credits to /schizophrenic144
